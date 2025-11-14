@@ -1,1 +1,1 @@
-See https://patchstorage.com/omnichord-tonality/
+See description on https://patchstorage.com/omnichord-tonality/
